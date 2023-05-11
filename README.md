@@ -1,0 +1,1 @@
+# Makliga_intelekta_pamati_2PD
